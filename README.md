@@ -1,2 +1,2 @@
 # SEDEVOPS
-HI FRIENDDS
+HI FRIENDDS gudhbol enjaaaay
